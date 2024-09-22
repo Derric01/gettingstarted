@@ -1,3 +1,4 @@
 # gettingstarted
-This is my second git repository 
+This is my second git repository
+<br>
 author:Derric samson
