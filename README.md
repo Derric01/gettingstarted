@@ -15,7 +15,7 @@ derric!!!!
 derric!!!!!!!!!!!
 derric!!!!!!!!!!!!!!
 derric!!!!!!!!!!!!!!!!!
-derric!!!!!!!!!!!!!!!!!!!!!!!!
+derric!!!!!!!!!!!!!!!!!!!!!!!!!!!
 derric!!!!!!!!!!!!!!
 derric!!!!!!!!!!!!!!!;;!!!
 derric!!!!!!!!!!!!!!
@@ -34,3 +34,4 @@ derric!!!!!!!!!!!!!!!!!!!!!!!
 !!!!!
 !!!!!!!!
 !!!!!
+born to defy all the odds thats in front of me!!😎🔥
