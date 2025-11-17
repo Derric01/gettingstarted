@@ -1,4 +1,4 @@
-àuz# #gettingstarted
+jiàuz# #gettingstarted
 This is my second git repository
 <br>
 author:Derric samson
@@ -43,3 +43,4 @@ derric!!!!!!!!!!!!!!!!!!!!!!!
 born to defy all the odds thats in front of me!!😎🔥
 I wanna be a achiever
 i wanna be an achiever
+#;+$hehdb
